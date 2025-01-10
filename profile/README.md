@@ -19,7 +19,7 @@ Garena Free Fire MAX players can enhance their gaming experience by redeeming sp
 
 
 ## How to Redeem Free Fire MAX Codes:
-1. **Visit the Official Redemption Site**: Navigate to the [Free Fire Rewards Redemption Site](https://reward.ff.garena.com/).
+1. **Visit the Official Redemption Site**: Navigate to the [Free Fire Rewards Redemption Site](https://m.indiamart.com/proddetail/2853235280130.html?utm_source=Gamingwithbrother.ff&utm_medium=affiliate&utm_campaign=0125&utm_content=204).
 2. **Log In**: Sign in using your preferred platform credentials (e.g., Facebook, Google, Twitter, Apple ID, etc.).
 3. **Enter the Code**: Input the 12-character code into the designated field and confirm.
 4. **Claim Your Reward**: Upon successful redemption, rewards will be sent to your in-game mail.
